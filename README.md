@@ -1,1 +1,1 @@
-My first readme
+ A big day to start coding 
