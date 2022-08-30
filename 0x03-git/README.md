@@ -1,1 +1,1 @@
- Practice makes perfect 
+Consistency is the key to greatness
